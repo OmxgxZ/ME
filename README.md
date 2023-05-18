@@ -20,8 +20,8 @@
 
 > <img src="https://media.giphy.com/media/ObNTw8Uzwy6KQ/giphy.gif" width="30px">&nbsp;***Talking about Personal Stuffs:***
 
-- <img src="https://giphy.com/gifs/leagueoflegends-tft-teamfight-tactics-reckoning-xtxHuXwNFBYKpSYpJU" width="45px">&nbsp;Pronouns: ***He/Him*** or ***Omega***😉
+- <img src="https://giphy.com/gifs/leagueoflegends-tft-teamfight-tactics-reckoning-xtxHuXwNFBYKpSYpJU" width="30px">&nbsp;Pronouns: ***He/Him*** or ***Omega***😉
 - <img src="https://giphy.com/gifs/leagueoflegends-legends-of-runeterra-dark-academia-battle-rMelA7MZWTeGoJCi0f" width="30px">&nbsp;I’m currently working on Competitive Chem and Lab stuff...
 - <img src="https://giphy.com/gifs/leagueoflegends-lol-league-of-legends-Vkx5gdkAY5qw34xsQy" width="30px">&nbsp;I’m looking to collaborate in an Open - Source Project🤝...
 - <img src="https://giphy.com/gifs/leagueoflegends-transparent-KqtB754GywVbZhX3p3" width="30px">&nbsp;I’m looking for help with Immunology!
-- <img src="https://giphy.com/gifs/leagueoflegends-league-of-legends-star-guardian-xa32ILIuLCu4XMS3Np" width="90px">&nbsp;Ask me about anything, I am happy to help, only if the ball is in my court, or if its ´bout League.
+- <img src="https://giphy.com/gifs/leagueoflegends-league-of-legends-star-guardian-xa32ILIuLCu4XMS3Np" width="30px">&nbsp;Ask me about anything, I am happy to help, only if the ball is in my court, or if its ´bout League.
